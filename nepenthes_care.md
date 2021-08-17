@@ -1,6 +1,7 @@
 This is to help you understand how to care for a low land or a low land hybrid nepenthes plant.
 
-### 1. If you just got the plant, gently unpack them, use driking water (less than 75-100 ppm) and pour water through the leaves and wet the pot till water pours down the drain holes and leave them be over night.
+### 1. If you just got the plant, gently unpack them, use driking water (less than 75-100 ppm) and pour water through the leaves and wet the pot 
+till water pours down the drain holes and leave them be over night.
 
 ### 2. Spare day 2 without watering. Do not keep the plant in full sun as it will put them into shock from the shipment's stress.
 PS These plants can be very sensitive as their senses drive them to pray on their food.
