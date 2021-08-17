@@ -14,7 +14,7 @@ They love rain and if it rains please feel free to let rain water spill on them.
 
 ### 6. Do not add fertilizers, soil, manure, or any other substance than what the plant comes with. If there is a spill of medium, feel free to add fresh and clean cocopeat that has been rinsed away from factory additives.
 
-### 7. If you already grow orchids with some sort of expertise, you probably have a good sense of care required for nepenthes, a 50% conc. orchid fert spray every week can help them grow wild after you've destressed the plant from shipment.
+### 7. If you already grow orchids with some sort of expertise, you probably have a good sense of care required for nepenthes, a 50% conc. orchid fert(water sluble npk) spray every week can help them grow wild after you've destressed the plant from shipment.
 
 ### 8. The plant will need a physical support after it has grown more than 1/2 ft. The leaves are heavy and will bend the entire plant, this can cause the plant to snap or break with heavy winds, its safer to tie a pole with the plant for the support.
 
