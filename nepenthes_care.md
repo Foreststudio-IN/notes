@@ -23,5 +23,5 @@ They love rain and if it rains please feel free to let rain water spill on them.
 
 ### 10. Physical conditions : Temperature range 20 - 45 Degrees Centigrade, humidity above 60% ( spray water on them 3-4 a day on the leaves if its warm, else once if its cold)
 
-# Please feel free to contact us for any other questions , you can write to us at info@foreststudio.in ( response time is 1 day ) or visit foreststudio.in to call us.
+## Please feel free to contact us for any other questions , you can write to us at info@foreststudio.in ( response time is 1 day ) or visit foreststudio.in to call us.
 
