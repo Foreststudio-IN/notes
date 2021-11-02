@@ -1,3 +1,12 @@
+## Introduction
+
+Sarracenia are fairly easy to grow from seed if you have patience. Each step in producing the seed, germinating it, and growing the plants takes patience. It takes at least 4 years to go from a just-pollinated flower to a mature, blooming plant. Don't even think about how old you will be or what you will be doing in 4 years. Just do it for the adventure.
+
+Sarracenia seedlings make excellent indoor plants. For the first two years you can grow seedlings under lights without dormancy. In fact, if you give them enough light and enough food, after two years you will have plants the size of four-year-old plants grown outside with dormancy. It may even bloom in its fourth year of growth.
+
+## Pollination
+Sarracenia flowers usually appear in the spring slightly ahead of or with the first pitchers. The very elaborate flowers do not self pollinate. They need certain species of bumblebees for pollination services. In many areas, there are no pollinators that know how to work the flowers or the plants bloom too early for there to be any pollinators around. If you don't pollinate the flowers yourself, it will not happen and you will not get any seeds. This can actually be good when you are doing crosses. You will not need to bag flower to keep them from being pollinated naturally. However, if you do have bumblebees that pollinate the flowers, you will need to bag flowers with a mesh bag if you want to make specific crosses.
+
 ## Germinating seed
 Sarracenia seed is rather odd. It has a waxy coating making it hydrophobic, most likely to help with dispersal in nature by floating on water. This also makes it difficult to germinate quickly. The seed can't germinate until you get moisture past the wax and seed coat into the embryo. You waited how many months to get the seed and you want the plants NOW! Relax.
 
