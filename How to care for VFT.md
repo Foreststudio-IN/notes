@@ -21,7 +21,7 @@ Leaves on your plant will die and turn black. Individual leaves only last a few 
  
 Growing your plant outside has issues. You can forget to refill the water dish. You might go on vacation. Jays will uproot newly planted plants. Raccoons and other animals can make a horrible mess digging in the pot or trying to get to the water in the dish. Squirrels and Jays will plant things in your pot. Aphids love VFT's and will cause deformed leaves. That's life on this planet.
  
-![VFT]([https://github.com/[username]/[reponame]/blob/[branch]/image.jpg](https://github.com/Foreststudio-IN/notes/blob/main/Dionaea6a.jpg)?raw=true)
+![VFT](https://github.com/Foreststudio-IN/notes/blob/f53cd2871115eee1bfe3078df490e15e2cdadf16/Dionaea6a.jpg?raw=true)
 
  
 #Essentially :
