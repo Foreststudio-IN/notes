@@ -11,7 +11,12 @@ Keep the tiny pot, you dont have to repot. VFT's don't have much in the way of r
  
 Sit the pot with the plant in a dish of water about 1 to 2 cm (half to 1 inch) deep. DO NOT EVER LET THE DISH DRY OUT. And don't use just any water. Bottled drinking water is death to VFT's as it has a lot of minerals; so is most tap water that comes from wells. Use distilled, reverse osmosis, or rain water unless your tap water is very pure. In the wild, VFT's live in an area that gets a lot of rain and the water table is just a few inches below the surface of the soil.
  
-Put the plant in a window that has the sun coming in, under an LED light, or outside in the sun. A vft needs a constant of about 7-9Watts of led light to quantify, to do well, or the plant needs at least six hours of reflected sunlight every day(not more than 30C). This is hard to do in a house. The plant will start declining immediately if it doesn't get enough light. Consider growing it under a an LED light. You don't need special "plant" lights. A desk lamp with a standard white LED spotlight works as well. The light should be on 12 to 16 hours a day. 
+Put the plant in a window that has the sun coming in, under an LED light, or outside in the sun. A vft needs a constant of about 7-9Watts of led light to quantify, to do well, or the plant needs at least six hours of reflected sunlight every day(not more than 30C). This is hard to do in a house. The plant will start declining immediately if it doesn't get enough light. Consider growing it under a an LED light. You don't need special "plant" lights. A desk lamp with a standard white LED spotlight works as well. They need 12 to 16 hours of light a day. 
+ 
+
+https://user-images.githubusercontent.com/1910719/207286882-e30eefe9-caa2-4c34-8a93-f3680f8ad7c6.mp4
+
+
  
 Do not fertilize your plant. Yes, VFT's have been known to survive being fertilized but it is best not to. In the wild they live in areas with very low soil nutrients so they are not used to dealing with fertilizer. When you get new soil for your plant, read the label carefully. You want only Sphagnum peat or peat moss without added fertilizer and horticultural or silica sand blasting sand. Do not use potting mix or play sand or builders sand for your VFT's.
  
