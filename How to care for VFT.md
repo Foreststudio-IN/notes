@@ -3,6 +3,8 @@ So .. What to do and what not to do ?
 
 Ditch the wraps and if possible reuse the box than dumping it the bin, hold on to the plastic tray it was clipped on, The grower put it there to protect the plant during shipping, to protect the plant from neglect by the nursery staff, and to protect the plant from abuse by the customers. 
 The grower did not put it there because it makes the plant happy. Closed spaces are not needed by VFT's and can be dangerous to their health, which means that they do not do well in closed terrariums, they need plenty of air and light. Plants that have been in greenhouses and plastic cup terrariums may take a while to acclimate to drier air in it but acclimate they will in a few days. Pl keep it mind that they can be notiriously sensitive plants. You are near them, they can sense you.
+
+![VFT](https://github.com/Foreststudio-IN/notes/blob/3f83edef63669ad9ef5c550277fb51b9581cd7fd/LogoLicious_20221202_211028.png)
  
 Anyways, 
 Keep the tiny pot, you dont have to repot. VFT's don't have much in the way of roots and it will not get root-bound in that pot. The only reason to repot the plant would be because a larger pot would provide a more stable environment for the roots or the growth point of the plant has hit the edge of the pot. I suggest a pot tops 8 cm (3 inches) in diameter and 10 cm (4 inches) tall with a soil of 50% peat moss and 50% coarse silica sand with a 1 cm (half inch) layer of coarse silica sand on the top. However, wait to do this until the plant has acclimated to your conditions and is growing well. If you absolutely do need to repot it, put it in a plastic bag for a few weeks after repotting.
@@ -22,7 +24,6 @@ Leaves on your plant will die and turn black. Individual leaves only last a few 
 Growing your plant outside has issues. You can forget to refill the water dish. You might go on vacation. Jays will uproot newly planted plants. Raccoons and other animals can make a horrible mess digging in the pot or trying to get to the water in the dish. Squirrels and Jays will plant things in your pot. Aphids love VFT's and will cause deformed leaves. That's life on this planet.
  
 ![VFT](https://github.com/Foreststudio-IN/notes/blob/d89be91baaffb012ed1d4ae21b02531464399b1c/Dionaea6a.jpg?raw=true)
-
 
  
 #Essentially :
