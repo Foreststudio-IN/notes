@@ -8,8 +8,9 @@ So .. What to do and what not to do ?
 Ditch the wraps and if possible reuse the box than dumping it the bin, hold on to the plastic tray it was clipped on, The grower put it there to protect the plant during shipping, to protect the plant from neglect by the nursery staff, and to protect the plant from abuse by the customers. 
 The grower did not put it there because it makes the plant happy. Closed spaces are not needed by VFT's and can be dangerous to their health, which means that they do not do well in closed terrariums, they need plenty of air and light. Plants that have been in greenhouses and plastic cup terrariums may take a while to acclimate to drier air in it but acclimate they will in a few days. Pl keep it mind that they can be notiriously sensitive plants. You are near them, they can sense you.
 
-![VFT](https://github.com/Foreststudio-IN/notes/blob/3f83edef63669ad9ef5c550277fb51b9581cd7fd/LogoLicious_20221202_211028.png)
- 
+
+![555](https://user-images.githubusercontent.com/1910719/207394684-a46f6c14-e14e-4be2-8899-b48a0950701e.png)
+
 Anyways, 
 Keep the tiny pot, you dont have to repot. VFT's don't have much in the way of roots and it will not get root-bound in that pot. The only reason to repot the plant would be because a larger pot would provide a more stable environment for the roots or the growth point of the plant has hit the edge of the pot. I suggest a pot tops 8 cm (3 inches) in diameter and 10 cm (4 inches) tall with a soil of 50% peat moss and 50% coarse silica sand with a 1 cm (half inch) layer of coarse silica sand on the top. However, wait to do this until the plant has acclimated to your conditions and is growing well. If you absolutely do need to repot it, put it in a plastic bag for a few weeks after repotting.
  
@@ -30,8 +31,7 @@ Do play with your plant. VFT's are not fragile plants so don't be afraid of hurt
  
 If your plant is not catching prey on its own, you need to feed it regularly to keep it healthy and growing. Only feed a VFT live food or fake live food. VFT's are very picky about their food because they don't want to waste energy "eating" rain or dirt or debris. A trick for feeding VFT's is to use cold flies. Catch flies in a jar and then put the jar in the refrigerator for a few hours. Cold flies can't fly. Be careful about feeding worms to your plant because they can eat their way out and also may pretend to be twig and the trap will let them out. To fake live food, use Dried Blood Worms available in tropical fish stores. Soak a large pinch of dried worms in a small amount of water for a few minutes then put the guky mass in a trap using forceps. This should trigger the trap. Gently massage the closed trap so it thinks the blood worms are wiggling.
  
- ![555](https://user-images.githubusercontent.com/1910719/207394684-a46f6c14-e14e-4be2-8899-b48a0950701e.png)
-
+![VFT](https://github.com/Foreststudio-IN/notes/blob/3f83edef63669ad9ef5c550277fb51b9581cd7fd/LogoLicious_20221202_211028.png)
  
 Leaves on your plant will die and turn black. Individual leaves only last a few months. A healthy plant will be constantly putting on new leaves and the old ones will be dying back. This is what you want to happen. If the plant stops producing leaves, feed it as soon as you can. I recommend cutting off any flower stalks as soon as you see them so the plant does not waste energy on flowers. In spite of the fact the person who named the plant after Venus said it was because of the pretty white flowers, don't believe it.
  
